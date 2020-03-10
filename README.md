@@ -17,4 +17,10 @@ The other, start-from-scratch idea that I am playing with is the idea of creatin
 4. Lay in bed
    ... Some calming, [meditative web art](http://www.returnreverse.com/)?
 
-This defo synthesizes everything we've learned in DWD in a way that I enjoy, but is it crazy to do all this designing, wire framing and building in 2 weeks? One week wherin I will be in Hawaii with my family?
+This synthesizes everything we've learned in DWD in a way that I enjoy; I'm excited about the storytelling possibilities! But is it crazy to do all this designing, wire framing and building in 2 weeks? One week wherin I will be in Hawaii with my family?
+
+### Feedback?
+
+I'd love to have your thoughts on what you think might be more worthwhile, or any conceptual critiques you might have~! In thinking about Community Crayola I actually thought of a few more ways to complicate the project so I think it might be more of a satisfying challenge, but my heart wants the harder project.
+
+Lastly, thanks for this class! I know it's been a struggle for you and Joey as much as us, but you've handled it all with grace. Looking back it's really incredible how much I learned in 7 weeks. Your efforts in class, the guides, and in-person are really noticed and appreciated.
